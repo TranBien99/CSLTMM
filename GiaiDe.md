@@ -1,4 +1,3 @@
-![FB_IMG_16095026181253693](https://user-images.githubusercontent.com/71126390/103470094-41dc6100-4da0-11eb-8215-c7df3c10384a.jpg)
 ![IMG_20210103_084022](https://user-images.githubusercontent.com/71126390/103470095-46087e80-4da0-11eb-8944-b13f5014b6e3.jpg)
 ![IMG_20210103_084036](https://user-images.githubusercontent.com/71126390/103470097-4c96f600-4da0-11eb-9b7b-2806a0ce4259.jpg)
 ![IMG_20210103_084042](https://user-images.githubusercontent.com/71126390/103470100-502a7d00-4da0-11eb-8a86-3bf727876de4.jpg)
